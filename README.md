@@ -1,11 +1,9 @@
 # 大红窄门|Bright Red's Narrow Gate
 
 因为是窄门，路很难，却是通往生命之门。
-
 For the gate is narrow and the road is hard that leads to life.
 
 玛7：13-14　你们要从窄门进去，因为宽门和大路导向丧亡；但有许多的人从那里进去。
-
 Mt7：13-14　Enter by the narrow gate, since the road that leads to destruction is wide and spacious, and many take it;
 
 
