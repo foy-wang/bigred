@@ -1,4 +1,4 @@
-# 大红窄门|Bright Red's Narrow Gate
+##### 大红窄门|Bright Red's Narrow Gate
 
 因为是窄门，路很难，却是通往生命之门。
 For the gate is narrow and the road is hard that leads to life.
